@@ -1,1 +1,0 @@
-# GenericWhite.github.io
